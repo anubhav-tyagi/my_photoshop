@@ -1,1 +1,1 @@
-# my_photoshop_
+# my_photoshop
